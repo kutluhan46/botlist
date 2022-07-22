@@ -1,1 +1,15 @@
-# botlist
+!
+
+
+!
+
+
+
+
+!
+MURAT EREN YOUTUBE ABONE OLURSANIZ SEVİNİRİM
+!
+!
+!
+!
+!
